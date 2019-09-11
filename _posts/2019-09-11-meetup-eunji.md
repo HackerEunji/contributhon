@@ -7,4 +7,8 @@ author: HackerEunji
 ---
 
 ## Summary
-Write down what you achieved during the meet-up.
+1)bounty-hunt
+(basic to advanced studies,, I need money)
+2)dx
+(after my skills improved)
+3)Transulation
